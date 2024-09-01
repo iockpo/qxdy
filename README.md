@@ -4,6 +4,8 @@
 
 OnlyFans是一个以订阅制为主的平台，类似于国内的微博和小红书，但更为开放，用户可以通过付费订阅来访问特定创作者的内容。平台上拥有许多高质量的成人内容，这也是其流行的原因之一。
 
+![image](https://github.com/user-attachments/assets/90390f2b-cdf9-427a-9a89-3dadf43ce028)
+
 ## 如何订阅OnlyFans
 
 目前，国内用户可以通过虚拟信用卡来完成OnlyFans的订阅。我推荐使用[WildCard虚拟卡](https://bit.ly/WildCardo)进行支付，简单快捷。
